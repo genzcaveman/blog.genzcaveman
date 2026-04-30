@@ -7,12 +7,8 @@ author: Sumit Kumar
 
 ###You can contact me via any of the following ways :)
 
-Email: sumit@sumone.me
+Email: sum@sumone.me
 
-Twitter: [sumone](https://twitter.com/sumonefromindia)
-
-Telegram: [@sumonelove](https://t.me/sumonelove)
-
-<!--Instagram: [echosumit](https://www.instagram.com/echosumit)-->
+Telegram: [@sumonelove](https://t.me/genzcaveman)
 
 LinkedIn:[ sumone](https://www.linkedin.com/in/sum0ne)
