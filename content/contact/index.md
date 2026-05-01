@@ -7,7 +7,7 @@ author: Sumit Kumar
 
 ###You can contact me via any of the following ways :)
 
-Email: sum@sumone.me
+Email: sum@sumone.xyz
 
 Telegram: [@genzcaveman](https://t.me/genzcaveman)
 
